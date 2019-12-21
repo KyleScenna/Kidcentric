@@ -1,4 +1,4 @@
 ## Support and Contact
 
-Please email KidcentricSupport@gmail.com for support.
+Please email kidcentric.help@gmail.com for support.
 
